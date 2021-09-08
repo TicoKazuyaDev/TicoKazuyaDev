@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @TicoKazuyaDev
+- 👀 Sou estudante de T.I.
+- 📫 Brasil, Curitiba.
